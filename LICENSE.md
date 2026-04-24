@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with hidden Scripts for steal the brainrot base, the #1 Script. Includes speed and custom skins
 
 
 
